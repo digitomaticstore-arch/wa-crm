@@ -1,6 +1,6 @@
 # WA CRM – Most Powerful WhatsApp CRM (Latest Version 2025)
 
-<img src="http://wabacrm.shop/wp-content/uploads/2025/11/wabacrm-scaled.png" width="900">
+<img src="http://wabacrm.shop/wp-content/uploads/2025/11/wabacrm-scaled.png" width="900" >
 
 WA CRM is one of the most advanced WhatsApp CRM software available for businesses.
 If you are searching for **WA CRM download**, **WA CRM free software**, or 
