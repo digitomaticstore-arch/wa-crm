@@ -30,4 +30,13 @@ Admin panel features listed — visit website for more details.
 
 ## 🔍 SEO Keywords
 wa crm, wa crm download, wa crm software free download, best wa crm,
-whatsapp crm 2025, wa blast crm, wa sender crm, wa crm extension
+whatsapp crm 2025, wa blast crm, wa sender crm, wa crm extension,wa-crm
+waba-crm
+whatsapp-crm
+wa-crm-download
+wa-crm-software
+whatsapp-automation
+whatsapp-crm-tool
+bulk-whatsapp
+whatsapp-marketing
+wa-crm-2025
